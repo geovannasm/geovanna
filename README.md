@@ -13,5 +13,5 @@
 # email:
 geovanna.sentone.medeiros@escola.pr.gov.br
 
-![](https://media.tenor.com/JNnPwNnbruUAAAAM/porscha-coleman.gif)
+![](https://media.tenor.com/G6-r3NuPMuMAAAAC/pop.gif)
 
